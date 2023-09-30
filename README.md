@@ -1,1 +1,1 @@
-](https://moe-counter.glitch.me/get/@interlude111?theme=rule34)https://moe-counter.glitch.me/get/@interlude111?theme=rule34
+![interlude's Moe Counter. Credit @journeyad](https://moe-counter.glitch.me/get/@interlude111?theme=rule34)
